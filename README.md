@@ -24,4 +24,4 @@ $\color{#54B091}\text{read CARDD }\color{#3C6282}\text{or PRONOUNS.CC}\color{#54
  $\color{#6FB054}\text{ Heavy Kick (cod-ghosts) and Ghost (codmw) kin/synpath }$
 
  <p align="center">
- $\color{#566B2E}\text{ back in school so a bit on edge }$
+ $\color{#566B2E}\text{ Back in school and getting a lot of medication changes so I may or may not be online much. }$
